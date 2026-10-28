@@ -1,1 +1,1 @@
-#StuckInDeadFandoms & on a online hiatus or keeping to myself for a few months , under construction . . . ♡ How dose one use GitHub XnX
+#StuckInDeadFandoms & most likely in party island for awhile with my Vanilly so I can properly heal from my friends & I being harassed </3 , under construction . . . ♡ How dose one use GitHub XnX
