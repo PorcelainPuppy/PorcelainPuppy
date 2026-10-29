@@ -1,1 +1,1 @@
-#StuckInDeadFandoms , most likely in party island for awhile with my Vanilly so I can properly heal from my friends & I being harassed </3 ! Keeping to myself for awhile due to it , under construction . . . ♡ How dose one use GitHub XnX
+#StuckInDeadFandoms , most likely in party island for awhile with my Vanilly so I can properly heal from my friends & I being harassed </3 .ᐟ Keeping to myself for awhile due to it , under construction . . . ♡ How dose one use GitHub XnX
