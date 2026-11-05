@@ -1,1 +1,1 @@
-#StuckInDeadFandoms , under construction . . . ♡ How dose one use GitHub XnX
+#StuckInDeadFandoms , under construction . . . ♡ ー .ᐟ How dose one use GitHub . . . XnX
